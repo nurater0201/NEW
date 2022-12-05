@@ -7,4 +7,4 @@
 Работаю в интернет магазине посуды.
 Люблю отдыхать на море и путешествовать.
 
-[моя семья](../../../../../../c:/Users/nurat/OneDrive/%D7%A9%D7%95%D7%9C%D7%97%D7%9F%20%D7%94%D7%A2%D7%91%D7%95%D7%93%D7%94/NEW/73859-kartinki-na-temu-semja.html)
+![images](https://user-images.githubusercontent.com/119350647/205715843-c97edb53-bba6-4448-a15e-6f08faa9066c.png)
